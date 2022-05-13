@@ -18,4 +18,4 @@ Progressive culture, aggresively rejecting regressive culture, and music that ch
 
  - life?
  - Nothing tbh, kinda on a solo mission, but my mind is always open.
- - 📫 me@jeffersonreal.com
+ - 📫 me@jeffersonreal.uk
