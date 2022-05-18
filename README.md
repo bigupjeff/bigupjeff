@@ -1,4 +1,4 @@
-![Bright welcome Canvas banner](https://user-images.githubusercontent.com/67714557/155904935-4f26184f-1419-45f8-8f88-7818f59960b6.png)
+![facebook_header-desert](https://user-images.githubusercontent.com/67714557/169003386-dfedaccd-891c-41e5-8354-447ddc539e84.png)
 
 ### 👋 Hi, I’m @bigupjeff
 
